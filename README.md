@@ -7,3 +7,5 @@ Never gonna:
 
 - make you cry
 - say goodbye
+- tell a lie
+- dessert you
