@@ -4,3 +4,6 @@ Never gonna:
 - let you down
 - run around
 - and hurt you
+
+- make you cry
+- say goodbye
